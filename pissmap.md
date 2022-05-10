@@ -9,8 +9,11 @@ So basicallly oen of are defs am defenitlee not mee otted durnk oen day and come
 If we take the official names (ass.class heh) and just diff them with every file ever to find a thing that looks like it, we can use the same official name forever.
 
 Then just run it through an Xbox 360 era piss filter, and bam.
+
 ass.class becomes CBT_dQw4w9WgXcQ
+
 ass.b() becomes cunny_Tc8iu0XFUQc
+
 ass.i becomes OBAMA_BGQ8O8uurEs
 
 ## Advantages to this system:
